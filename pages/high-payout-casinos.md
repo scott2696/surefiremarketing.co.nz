@@ -22,7 +22,7 @@ words: 1950
   Widest instant-win range on this list · Link: https://mediaroosters.com/aaud6h1mdk
 - **Smash Casino** — 10x wagering — the bonus you keep more of  
   Rating: 8.8/10 · Offer: 600% total up to NZ$19,500  
-  10x deposit + bonus · sports 250% to NZ$9,800 at 15x · Link: https://go.afftrackio.com/visit/?bta=36498&nci=5376
+  10x deposit + bonus · sports 250% to NZ$9,800 at 15x · Link: https://go.afftrackio.com/visit/?bta=36498&nci=5378
 - **Spino Casino** — Winnings withdrawable with no turnover  
   Rating: 8.6/10 · Offer: Welcome package to 2,000 USDT  
   0x wagering · crypto-first cashier · Link: https://zaplypulse.com/_KhUegrO770yvDqzoZ5dbn2Nd7ZgqdRLk/1/

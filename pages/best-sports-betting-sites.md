@@ -22,7 +22,7 @@ words: 2170
   15x wagering · crypto payouts in 2–4 hours · Link: https://go.afftrackio.com/visit/?bta=36498&nci=5356
 - **Smash** — 30+ sports · Dota 2, Call of Duty, CS  
   Rating: 8.8/10 · Offer: Sports bonus at 15x turnover  
-  Well below the 30x–40x market norm · Link: https://go.afftrackio.com/visit/?bta=36498&nci=5376
+  Well below the 30x–40x market norm · Link: https://go.afftrackio.com/visit/?bta=36498&nci=5378
 - **IviBet Sportsbook** — TechOptions Group · Curaçao 365/JAZ  
   Rating: 8.0/10 · Offer: Casino and sports on one login  
   Verify ID early — players report KYC delays · Link: https://mio.novarao.com/redirect.aspx?pid=110262&bid=1478&lpid=46

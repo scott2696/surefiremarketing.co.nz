@@ -25,7 +25,7 @@ words: 5605
   Four deposits · Aviator, bonus buys, full sportsbook · Link: https://mediaroosters.com/aaud6h1mdk
 - **Smash Casino** — 10x wagering · Anjouan licensed · 40+ providers  
   Rating: 8.8/10 · Offer: 600% total up to NZ$19,500  
-  10x deposit + bonus · sports 250% to NZ$9,800 at 15x · Link: https://go.afftrackio.com/visit/?bta=36498&nci=5376
+  10x deposit + bonus · sports 250% to NZ$9,800 at 15x · Link: https://go.afftrackio.com/visit/?bta=36498&nci=5378
 - **Lucky7even** — Best no-deposit offer · Curaçao GCB  
   Rating: 8.6/10 · Offer: 20 no-deposit spins + 100% up to NZ$1,700  
   Spins on Book of the Fallen · 50x on the free spins · Link: https://roosterpartners.media/aa750ngrue
@@ -245,7 +245,7 @@ Sports
 
 ### Smash Casino — the only bonus most players can actually clear
 
-8.8/10[Get bonus](https://go.afftrackio.com/visit/?bta=36498&nci=5376)
+8.8/10[Get bonus](https://go.afftrackio.com/visit/?bta=36498&nci=5378)
 Smash headlines with **600% total up to NZ$19,500** on casino (€10,000) and **250% up to NZ$9,800** on sports (€5,000), which sounds like marketing noise until you read the wagering line: 10x on deposit plus bonus. Most competitors sit at 35x to 40x on bonus only. Run the numbers and a NZ$100 deposit matched to NZ$600 needs NZ$7,000 of turnover at Smash, against NZ$24,000 for the same money at a 40x site. That is the difference between a bonus you might clear and one that exists to look big in an ad.
 
 The trade-off is transparency. Smash is licensed in Anjouan rather than Curaçao, and licensing details are not prominently displayed on the site. There is no dedicated app either — everything runs through the mobile browser, though the responsive build carries the full catalogue, live dealer studios, sportsbook and cashier without breaking.
@@ -264,7 +264,7 @@ The trade-off is transparency. Smash is licensed in Anjouan rather than Curaçao
 - Withdrawals took a few hours to a day, not minutes
 - No native app
 
-[Visit Smash Casino](https://go.afftrackio.com/visit/?bta=36498&nci=5376) 18+ · T&Cs apply
+[Visit Smash Casino](https://go.afftrackio.com/visit/?bta=36498&nci=5378) 18+ · T&Cs apply
 
 ### Spino Casino — a 0x wagering welcome offer
 

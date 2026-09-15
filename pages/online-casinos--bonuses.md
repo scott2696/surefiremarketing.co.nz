@@ -13,7 +13,7 @@ words: 2366
 
 - **Smash Casino** — 10x wagering — a quarter of the market norm  
   Rating: 9.4/10 · Offer: 600% total up to NZ$19,500  
-  10x deposit + bonus · sports 250% to NZ$9,800 at 15x · Link: https://go.afftrackio.com/visit/?bta=36498&nci=5376
+  10x deposit + bonus · sports 250% to NZ$9,800 at 15x · Link: https://go.afftrackio.com/visit/?bta=36498&nci=5378
 - **Spino Casino** — No turnover at all on the headline offer  
   Rating: 9.2/10 · Offer: Welcome package to 2,000 USDT  
   0x wagering · withdraw winnings immediately · Link: https://zaplypulse.com/_KhUegrO770yvDqzoZ5dbn2Nd7ZgqdRLk/1/

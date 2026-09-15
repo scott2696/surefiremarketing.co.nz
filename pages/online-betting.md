@@ -22,7 +22,7 @@ words: 2952
   15x wagering · crypto out in 2–4 hours, no fee · Link: https://go.afftrackio.com/visit/?bta=36498&nci=5356
 - **Smash** — Esports depth · Dota 2, CoD, Counter-Strike  
   Rating: 8.8/10 · Offer: Sports bonus at 15x turnover  
-  Half the market norm · pre-match and live · Link: https://go.afftrackio.com/visit/?bta=36498&nci=5376
+  Half the market norm · pre-match and live · Link: https://go.afftrackio.com/visit/?bta=36498&nci=5378
 - **Rivo** — Integrated sportsbook · 25% VIP cashback  
   Rating: 8.4/10 · Offer: 1000% total up to NZ$19,500  
   10x wagering · verify ID early, KYC is strict · Link: https://go.afftrackio.com/visit/?bta=36498&nci=5387

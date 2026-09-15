@@ -25,7 +25,7 @@ words: 1892
   Curaçao Gaming Control Board · 8,000+ across 80 studios · Link: https://mediaroosters.com/aaud6h1mdk
 - **Smash Casino** — 10x wagering is far below the 35–40x norm, so this bonus is genuinely clearable.  
   Rating: 8.8/10 · Offer: Casino: 600% total up to NZ$19,500. Sports: 250% up to NZ$9,800  
-  Anjouan Gaming Authority · 40+ providers, full live casino and sportsbook · Link: https://go.afftrackio.com/visit/?bta=36498&nci=5376
+  Anjouan Gaming Authority · 40+ providers, full live casino and sportsbook · Link: https://go.afftrackio.com/visit/?bta=36498&nci=5378
 - **Lucky7even** — One of the few sites with a real no-deposit offer you can claim before funding an account.  
   Rating: 8.6/10 · Offer: 100% up to NZ$1,700 per deposit day, plus 20 no-deposit spins on Book of  
   Curaçao Gaming Control Board · 3,000+ · Link: https://roosterpartners.media/aa750ngrue

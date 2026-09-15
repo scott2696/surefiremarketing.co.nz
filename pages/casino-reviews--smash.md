@@ -156,7 +156,7 @@ Support runs on the operator's hours rather than ours. New Zealand's evening is 
 - Complete identity verification before depositing to avoid payout delays
 - Offers change without notice; verify the current package at the cashier
 
-[Visit Smash Casino](https://go.afftrackio.com/visit/?bta=36498&nci=5376) 18+ · new players only · T&Cs apply
+[Visit Smash Casino](https://go.afftrackio.com/visit/?bta=36498&nci=5378) 18+ · new players only · T&Cs apply
 
 ## Smash Casino FAQ
 

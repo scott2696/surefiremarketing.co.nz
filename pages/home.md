@@ -200,7 +200,7 @@ Yes
 9.0/10[Get bonus](https://go.afftrackio.com/visit/?bta=36498&nci=5356)
 Kingdom won our payout-speed test outright. Crypto withdrawals were completing in two to four hours with no fee charged by the casino, against an industry median closer to a full day. For a player who cashes out weekly rather than annually, that difference compounds into a genuinely better experience.
 
-The welcome package is one of the largest here — **600% total up to NZ$18,500** on casino (€9,500) and **200% up to NZ$1,900** on sports (€1,000) — though 30x wagering means the top of that range is far harder to reach than the headline implies. The weekly reload calendar (Royal Monday, Kingly Wednesday, Regal Friday) is the more dependable value for a regular player. The sportsbook covers 30+ sports including esports, shares the casino balance, and supports in-play betting with an accumulator builder.
+The welcome package is one of the largest here — **600% total up to NZ$18,500** on casino and **200% up to NZ$1,900** on sports — though 30x wagering means the top of that range is far harder to reach than the headline implies. The weekly reload calendar (Royal Monday, Kingly Wednesday, Regal Friday) is the more dependable value for a regular player. The sportsbook covers 30+ sports including esports, shares the casino balance, and supports in-play betting with an accumulator builder.
 
 Welcome offer
 
@@ -246,7 +246,7 @@ Sports
 ### Smash Casino — the only bonus most players can actually clear
 
 8.8/10[Get bonus](https://go.afftrackio.com/visit/?bta=36498&nci=5378)
-Smash headlines with **600% total up to NZ$19,500** on casino (€10,000) and **250% up to NZ$9,800** on sports (€5,000), which sounds like marketing noise until you read the wagering line: 10x on deposit plus bonus. Most competitors sit at 35x to 40x on bonus only. Run the numbers and a NZ$100 deposit matched to NZ$600 needs NZ$7,000 of turnover at Smash, against NZ$24,000 for the same money at a 40x site. That is the difference between a bonus you might clear and one that exists to look big in an ad.
+Smash headlines with **600% total up to NZ$19,500** on casino and **250% up to NZ$9,800** on sports, which sounds like marketing noise until you read the wagering line: 10x on deposit plus bonus. Most competitors sit at 35x to 40x on bonus only. Run the numbers and a NZ$100 deposit matched to NZ$600 needs NZ$7,000 of turnover at Smash, against NZ$24,000 for the same money at a 40x site. That is the difference between a bonus you might clear and one that exists to look big in an ad.
 
 The trade-off is transparency. Smash is licensed in Anjouan rather than Curaçao, and licensing details are not prominently displayed on the site. There is no dedicated app either — everything runs through the mobile browser, though the responsive build carries the full catalogue, live dealer studios, sportsbook and cashier without breaking.
 

@@ -56,9 +56,9 @@ Pragmatic Play, Evolution, Play'n GO
 
 ## The ladder
 
-**1000% total up to NZ$19,500** on the casino side (€10,000) at **10x wagering** — the highest match percentage we list, on terms that are actually clearable. That puts Rivo alongside [Smash](/casino-reviews/smash/) as one of only two sites here pairing a large headline with a low multiple. It is a tiered package, so you step off at whichever rung suits you; the headline is an upper bound, not a commitment.
+**1000% total up to NZ$19,500** on the casino side at **10x wagering** — the highest match percentage we list, on terms that are actually clearable. That puts Rivo alongside [Smash](/casino-reviews/smash/) as one of only two sites here pairing a large headline with a low multiple. It is a tiered package, so you step off at whichever rung suits you; the headline is an upper bound, not a commitment.
 
-The sportsbook offer is a different proposition entirely: **100% up to NZ$950** (€500). If you came for sports, [Smash's 250% up to NZ$9,800](/casino-reviews/smash/) or [Rooster Bet](/casino-reviews/rooster-bet/) will serve you better.
+The sportsbook offer is a different proposition entirely: **100% up to NZ$950**. If you came for sports, [Smash's 250% up to NZ$9,800](/casino-reviews/smash/) or [Rooster Bet](/casino-reviews/rooster-bet/) will serve you better.
 
 The 25% VIP cashback is the largest on our list. Cashback matters more than most players realise: it converts a portion of losses back into playable or withdrawable value on every session, not just at sign-up.
 

@@ -58,10 +58,10 @@ Verify at sign-up
 
 MadCasino splits its welcome offer across two products, and both are unusually large by the standards of this market.
 
-| Product | Total offer (NZD) | Operator’s stated figure |
-|---|---|---|
-| Casino / pokies | **777% total up to NZ$14,500** | 777% up to €7,500 |
-| Sportsbook | **250% up to NZ$6,800** | 250% up to €3,500 |
+| Product | Total offer (NZD) |
+|---|---|
+| Casino / pokies | **777% total up to NZ$14,500** |
+| Sportsbook | **250% up to NZ$6,800** |
 
 Both are *total* figures, meaning the percentage and the cap are spread across a sequence of deposits rather than paid on the first one. A 777% headline never lands in a single hit — expect it tiered across four or five deposits, with the largest multiplier usually attached to the smallest cap.
 

@@ -56,7 +56,7 @@ Pragmatic Play, Evolution, BGaming
 
 ## Read the wagering line first
 
-Smash headlines with **600% total up to NZ$19,500** on the casino side (€10,000) and **250% up to NZ$9,800** on sports (€5,000), which reads like noise until you check the requirement: **10x on deposit plus bonus**. Run the numbers on a NZ$100 deposit matched to NZ$600 and you need NZ$7,000 of turnover. The same money at a 40x-on-bonus site needs NZ$24,000. That is the difference between a bonus you might genuinely clear and one that exists to look large in an advertisement.
+Smash headlines with **600% total up to NZ$19,500** on the casino side and **250% up to NZ$9,800** on sports, which reads like noise until you check the requirement: **10x on deposit plus bonus**. Run the numbers on a NZ$100 deposit matched to NZ$600 and you need NZ$7,000 of turnover. The same money at a 40x-on-bonus site needs NZ$24,000. That is the difference between a bonus you might genuinely clear and one that exists to look large in an advertisement.
 
 The sportsbook side follows the same logic — 250% up to NZ$9,800 at 15x turnover, where 30x to 40x is the usual ask. That is the largest sports welcome offer on this site by a wide margin.
 

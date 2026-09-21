@@ -60,7 +60,7 @@ Kingdom holds a Curaçao eGaming licence and runs a 7,000+ game catalogue alongs
 
 ## A big bonus, and the multiple that governs it
 
-Kingdom's welcome package runs to **600% total, up to NZ$18,500** on the casino side (€9,500) and **200% up to NZ$1,900** on sports (€1,000). That puts the casino offer among the three largest we list. Both are *total* figures spread across a deposit sequence, not paid on the first deposit.
+Kingdom's welcome package runs to **600% total, up to NZ$18,500** on the casino side and **200% up to NZ$1,900** on sports. That puts the casino offer among the three largest we list. Both are *total* figures spread across a deposit sequence, not paid on the first deposit.
 
 Then read the wagering line, because it changes the picture: **30x**. Better than the 40x industry norm, but on a package this size the turnover is substantial — a NZ$5,000 bonus at 30x is NZ$150,000 through the games. Set that against [Smash's 10x](/casino-reviews/smash/) on a similar headline and the gap in what you can realistically clear is enormous. Our [bonuses guide](/online-casinos/bonuses/) runs the arithmetic.
 

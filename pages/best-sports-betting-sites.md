@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/best-sports-betting-sites/
-title: "Best Sports Betting Sites NZ 2026 | Top Kiwi Bookmakers"
+title: "Best Sports Betting Sites NZ [October 2026]: Top Bookies"
 meta_description: "Best sports betting sites NZ 2026. How TAB NZ compares to international bookmakers on odds, markets and payouts — plus what the 2025 offshore betting law means for Kiwis."
-h1: "Best Sports Betting Sites NZ 2026: Top Bookmakers for Kiwi Punters"
+h1: "Best Sports Betting Sites NZ [October 2026]: Top Bookmakers for Kiwi Punters"
 author: "Rawiri Kingi, Lead Casino Reviewer"
 words: 2170
 ---
 
-# Best Sports Betting Sites NZ 2026: Top Bookmakers for Kiwi Punters
+# Best Sports Betting Sites NZ [October 2026]: Top Bookmakers for Kiwi Punters
 
 ## Ranked operators
 

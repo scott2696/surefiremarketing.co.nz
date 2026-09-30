@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/high-payout-casinos/
-title: "High Payout Casinos NZ 2026 | Best RTP Casino Sites"
+title: "High Payout Casinos NZ [October 2026]: Best RTP Casino Sites"
 meta_description: "The highest payout online casinos in NZ for 2026. Ranked on verified RTP, low house edge games and real withdrawal speed, with NZD banking for Kiwi players."
-h1: "High Payout Casinos NZ: Best RTP Casino Sites for Kiwis 2026"
+h1: "High Payout Casinos NZ [October 2026]: Best RTP Casino Sites for Kiwis"
 author: "Rawiri Kingi, Lead Casino Reviewer"
 words: 1950
 ---
 
-# High Payout Casinos NZ: Best RTP Casino Sites for Kiwis 2026
+# High Payout Casinos NZ [October 2026]: Best RTP Casino Sites for Kiwis
 
 ## Ranked operators
 

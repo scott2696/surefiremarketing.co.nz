@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/how-we-review/
-title: "How We Review Casinos | CasinoKiwi Testing Methodology"
+title: "How We Review Casinos [October 2026]: Our Methodology"
 meta_description: "Our full casino review methodology: the five scoring categories, their weights, the real-money withdrawal test we run from New Zealand, and what gets a site removed."
-h1: "How We Review Online Casinos: Our Testing Methodology"
+h1: "How We Review Online Casinos [October 2026]: Our Testing Methodology"
 author: "The CasinoKiwi Team, Editorial Team"
 words: 1072
 ---
 
-# How We Review Online Casinos: Our Testing Methodology
+# How We Review Online Casinos [October 2026]: Our Testing Methodology
 
 > ℹ️ **In one paragraph**We open a real account at every casino we rank, deposit our own money in New Zealand dollars, play, request a withdrawal, and record the timestamp at each stage. We read the full terms and conditions, verify the licence against the regulator's register, and test the responsible gambling tools. Sites are scored out of 5 across five weighted categories and re-tested quarterly. No operator can pay for a ranking position, and any site that stops paying players is removed the same week.
 

@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/online-betting/
-title: "Online Betting NZ 2026 | Best Betting Sites for Kiwis"
+title: "Online Betting NZ [October 2026]: Best Betting Sites for Kiwis"
 meta_description: "Online betting NZ 2026: the complete Kiwi guide. Compare betting sites, understand NZ betting law, decimal odds, market types, NZD payments and bankroll management."
-h1: "Online Betting NZ 2026: The Complete Guide for Kiwi Punters"
+h1: "Online Betting NZ [October 2026]: The Complete Guide for Kiwi Punters"
 author: "Rawiri Kingi, Lead Casino Reviewer"
 words: 2952
 ---
 
-# Online Betting NZ 2026: The Complete Guide for Kiwi Punters
+# Online Betting NZ [October 2026]: The Complete Guide for Kiwi Punters
 
 ## Ranked operators
 

@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/about/
-title: "About Us | CasinoKiwi — Independent NZ Casino Reviews"
+title: "About CasinoKiwi [October 2026]: Independent Casino Reviews"
 meta_description: "About CasinoKiwi: who we are, why we started, how we test online casinos from New Zealand accounts in NZD, and the editorial standards every page on this site follows."
-h1: "About CasinoKiwi: Independent Casino Reviews for New Zealand"
+h1: "About CasinoKiwi [October 2026]: Independent Casino Reviews for New Zealand"
 author: "The CasinoKiwi Team, Editorial Team"
 words: 710
 ---
 
-# About CasinoKiwi: Independent Casino Reviews for New Zealand
+# About CasinoKiwi [October 2026]: Independent Casino Reviews for New Zealand
 
 ## Why we exist
 

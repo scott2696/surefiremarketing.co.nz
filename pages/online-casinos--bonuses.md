@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/online-casinos/bonuses/
-title: "Casino Bonuses NZ 2026 | Best Welcome Offers & Free Spins"
+title: "Casino Bonuses NZ [October 2026]: Best Welcome Offers"
 meta_description: "Best online casino bonuses NZ 2026. Welcome offers, free spins, cashback and reloads ranked by real value — with the wagering clauses that quietly destroy bonus worth."
-h1: "Casino Bonuses NZ 2026: Best Welcome Offers & Free Spins for Kiwis"
+h1: "Casino Bonuses NZ [October 2026]: Best Welcome Offers & Free Spins for Kiwis"
 author: "Maia Williams, Editor, Bonuses & Regulation"
 words: 2366
 ---
 
-# Casino Bonuses NZ 2026: Best Welcome Offers & Free Spins for Kiwis
+# Casino Bonuses NZ [October 2026]: Best Welcome Offers & Free Spins for Kiwis
 
 ## Ranked operators
 

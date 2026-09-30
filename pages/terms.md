@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/terms/
-title: "Terms and Conditions | CasinoKiwi"
+title: "Terms and Conditions [October 2026]: CasinoKiwi"
 meta_description: "The terms and conditions governing use of CasinoKiwi — permitted use, accuracy of information, third-party links, age restrictions and limitation of liability under NZ law."
-h1: "Terms and Conditions"
+h1: "Terms and Conditions [October 2026]: CasinoKiwi"
 author: "The CasinoKiwi Team, Editorial Team"
 words: 853
 ---
 
-# Terms and Conditions
+# Terms and Conditions [October 2026]: CasinoKiwi
 
 ## 1. Acceptance of these terms
 

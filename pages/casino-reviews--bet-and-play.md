@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/casino-reviews/bet-and-play/
-title: "Bet&Play Review NZ 2026 | Bonus, Payouts & Verdict"
+title: "Bet&Play Review NZ [October 2026]: Bonus, Payouts & Verdict"
 meta_description: "Bet&Play review for New Zealand players 2026. Deepest sportsbook market list. Bonus terms, payout speed, games, licensing and our verdict — tested from an NZ "
-h1: "Bet&Play Review NZ 2026: Deepest sportsbook market list"
+h1: "Bet&Play Review NZ [October 2026]: Deepest sportsbook market list"
 author: "Rawiri Kingi, Lead Casino Reviewer"
 words: 1472
 ---
 
-# Bet&Play Review NZ 2026: Deepest sportsbook market list
+# Bet&Play Review NZ [October 2026]: Deepest sportsbook market list
 
 > ℹ️ **Our verdict**Bet&Play is the sportsbook-led option on this list — the deepest pre-match and in-play market coverage of the crypto-friendly books we checked, with 5,000+ casino games alongside it. The casino bonus's 50x wagering is high; the sports offer at 50% up to NZ$400 is the reason to be here.
 

@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/casino-reviews/roby/
-title: "Roby Casino Review NZ 2026 | Bonus, Payouts & Verdict"
+title: "Roby Casino Review NZ [October 2026]: Bonus & Payouts"
 meta_description: "Roby Casino review for New Zealand players 2026. Largest catalogue we counted. Bonus terms, payout speed, games, licensing and our verdict — tested from an NZ"
-h1: "Roby Casino Review NZ 2026: Largest catalogue we counted"
+h1: "Roby Casino Review NZ [October 2026]: Largest catalogue we counted"
 author: "Rawiri Kingi, Lead Casino Reviewer"
 words: 1443
 ---
 
-# Roby Casino Review NZ 2026: Largest catalogue we counted
+# Roby Casino Review NZ [October 2026]: Largest catalogue we counted
 
 > ℹ️ **Our verdict**Roby carries more games than anything else we assessed — 13,500+ from 120+ providers — with flexible banking and a 250% up to NZ$4,300 package. It sits at 4.0 rather than higher for one reason: it does not clearly publish a gaming licence, and withdrawals run to three business days.
 

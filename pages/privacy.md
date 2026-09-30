@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/privacy/
-title: "Privacy Policy | CasinoKiwi New Zealand"
+title: "Privacy Policy [October 2026]: CasinoKiwi New Zealand"
 meta_description: "How CasinoKiwi collects, uses, stores and protects your personal information under the New Zealand Privacy Act 2020, and how to request access, correction or deletion."
-h1: "Privacy Policy"
+h1: "Privacy Policy [October 2026]: CasinoKiwi New Zealand"
 author: "The CasinoKiwi Team, Editorial Team"
 words: 830
 ---
 
-# Privacy Policy
+# Privacy Policy [October 2026]: CasinoKiwi New Zealand
 
 > ℹ️ **In plain English**We collect very little. If you email us, we hold your email and message so we can reply. If you visit, our analytics records anonymised usage data. We do not sell your personal information, we do not build advertising profiles about you, and we do not receive any personal data back from the gambling operators we link to. You can ask us what we hold, ask us to correct it, or ask us to delete it, at [privacy@surefiremarketing.co.nz](mailto:privacy@surefiremarketing.co.nz).
 

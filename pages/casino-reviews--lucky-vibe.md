@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/casino-reviews/lucky-vibe/
-title: "Lucky Vibe Review NZ 2026 | Bonus, Payouts & Verdict"
+title: "Lucky Vibe Review NZ [October 2026]: Bonus, Payouts & Verdict"
 meta_description: "Lucky Vibe review for New Zealand players 2026. Casino and sports on one wallet. Bonus terms, payout speed, games, licensing and our verdict — tested from an "
-h1: "Lucky Vibe Review NZ 2026: Casino and sports on one wallet"
+h1: "Lucky Vibe Review NZ [October 2026]: Casino and sports on one wallet"
 author: "Rawiri Kingi, Lead Casino Reviewer"
 words: 1489
 ---
 
-# Lucky Vibe Review NZ 2026: Casino and sports on one wallet
+# Lucky Vibe Review NZ [October 2026]: Casino and sports on one wallet
 
 > ℹ️ **Our verdict**Lucky Vibe pairs a ~5,000-game library from 149 studios with a sportsbook on the same balance, and a four-deposit package up to NZ$5,000 with 300 free spins. Two issues keep it at 4.1: slow live chat response and a three-day bonus expiry that is the tightest on our list.
 

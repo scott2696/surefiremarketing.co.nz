@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/casino-reviews/slotsgem/
-title: "SlotsGem Review NZ 2026 | Bonus, Payouts & Verdict"
+title: "SlotsGem Review NZ [October 2026]: Bonus, Payouts & Verdict"
 meta_description: "SlotsGem review for New Zealand players 2026. IviBet's sister site. Bonus terms, payout speed, games, licensing and our verdict — tested from an NZ account."
-h1: "SlotsGem Review NZ 2026: IviBet's sister site"
+h1: "SlotsGem Review NZ [October 2026]: IviBet's sister site"
 author: "Rawiri Kingi, Lead Casino Reviewer"
 words: 1364
 ---
 
-# SlotsGem Review NZ 2026: IviBet's sister site
+# SlotsGem Review NZ [October 2026]: IviBet's sister site
 
 > ℹ️ **Our verdict**SlotsGem is the third TechOptions Group brand alongside IviBet and HellSpin, running 4,000+ titles on the same platform and cashier. It is a reasonable second account if you already know the group's systems, but it does not do anything the other two do not.
 

@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/nz-online-casino-law/
-title: "NZ Online Casino Law 2026 | Is Online Gambling Legal?"
+title: "NZ Online Casino Law [October 2026]: Is It Legal?"
 meta_description: "New Zealand online casino law explained for 2026: the Gambling Act 2003, the Online Casino Gambling Act, DIA licensing, the 1 December 2026 deadline and what it means for players."
-h1: "NZ Online Casino Law 2026: Is Online Gambling Legal in New Zealand?"
+h1: "NZ Online Casino Law [October 2026]: Is Online Gambling Legal in New Zealand?"
 author: "Maia Williams, Editor, Bonuses & Regulation"
 words: 1843
 ---
 
-# NZ Online Casino Law 2026: Is Online Gambling Legal in New Zealand?
+# NZ Online Casino Law [October 2026]: Is Online Gambling Legal in New Zealand?
 
 ## New Zealand online gambling: the timeline
 

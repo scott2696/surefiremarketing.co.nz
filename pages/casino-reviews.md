@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/casino-reviews/
-title: "Casino Reviews NZ 2026 | 16 Sites Tested by Kiwis"
+title: "Casino Reviews NZ [October 2026]: 16 Sites Tested by Kiwis"
 meta_description: "Every online casino we have tested for New Zealand players, with scores, bonus terms, payout speeds and licensing verified — including the ones we cannot recommend."
-h1: "Casino Reviews NZ 2026: Every Site We Have Tested"
+h1: "Casino Reviews NZ [October 2026]: Every Site We Have Tested"
 author: "Rawiri Kingi, Lead Casino Reviewer"
 words: 1892
 ---
 
-# Casino Reviews NZ 2026: Every Site We Have Tested
+# Casino Reviews NZ [October 2026]: Every Site We Have Tested
 
 ## Ranked operators
 

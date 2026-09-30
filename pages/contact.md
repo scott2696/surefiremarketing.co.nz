@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/contact/
-title: "Contact Us | CasinoKiwi New Zealand"
+title: "Contact Us [October 2026]: CasinoKiwi New Zealand"
 meta_description: "Contact the CasinoKiwi team — corrections, editorial questions, operator disputes, partnership enquiries and responsible gambling support contacts for New Zealand."
-h1: "Contact CasinoKiwi"
+h1: "Contact CasinoKiwi [October 2026]: Corrections, Questions and Enquiries"
 author: "The CasinoKiwi Team, Editorial Team"
 words: 436
 ---
 
-# Contact CasinoKiwi
+# Contact CasinoKiwi [October 2026]: Corrections, Questions and Enquiries
 
 > ⚠️ **If you need gambling harm support, do not wait for us**We are a review site, not a support service. For free, confidential help 24 hours a day, call the **Gambling Helpline on [0800 654 655](tel:0800654655)** or free text **8006**. The Problem Gambling Foundation offers free counselling nationwide on [0800 664 262](tel:0800664262). In an emergency, call 111.
 

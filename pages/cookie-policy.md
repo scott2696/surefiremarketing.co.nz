@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/cookie-policy/
-title: "Cookie Policy | CasinoKiwi New Zealand"
+title: "Cookie Policy [October 2026]: CasinoKiwi New Zealand"
 meta_description: "What cookies CasinoKiwi uses, why we use them, how long they last, and exactly how to control or delete them in Chrome, Safari, Firefox and Edge."
-h1: "Cookie Policy"
+h1: "Cookie Policy [October 2026]: CasinoKiwi New Zealand"
 author: "The CasinoKiwi Team, Editorial Team"
 words: 483
 ---
 
-# Cookie Policy
+# Cookie Policy [October 2026]: CasinoKiwi New Zealand
 
 > ℹ️ **In plain English**We use three kinds of cookie: ones that make the site work, ones that tell us anonymously which pages get read, and ones that record that you clicked through to a gambling operator so a commission can be attributed. You can decline the optional ones and still read every page in full. We do not use cookies to build an advertising profile of you or to follow you around the web.
 

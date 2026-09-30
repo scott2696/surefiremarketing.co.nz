@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/gambling-winnings-tax-nz/
-title: "Gambling Winnings Tax NZ 2026 | Do You Pay Tax on Wins?"
+title: "Gambling Winnings Tax NZ [October 2026]: Do You Pay Tax?"
 meta_description: "Do you pay tax on gambling winnings in NZ? The full IRD position for 2026 on casino wins, pokies, betting and the crypto rule that catches New Zealand players out."
-h1: "Gambling Winnings Tax NZ: Do You Pay Tax on Casino Wins?"
+h1: "Gambling Winnings Tax NZ [October 2026]: Do You Pay Tax on Casino Wins?"
 author: "Maia Williams, Editor, Bonuses & Regulation"
 words: 1758
 ---
 
-# Gambling Winnings Tax NZ: Do You Pay Tax on Casino Wins?
+# Gambling Winnings Tax NZ [October 2026]: Do You Pay Tax on Casino Wins?
 
 ## What to actually record
 

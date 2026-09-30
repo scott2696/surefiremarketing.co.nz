@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/responsible-gambling/
-title: "Responsible Gambling NZ | Help, Limits & Self-Exclusion"
+title: "Responsible Gambling NZ [October 2026]: Help & Limits"
 meta_description: "Responsible gambling in New Zealand: free 24/7 helplines, how to set deposit limits, how self-exclusion works with offshore sites, and how to recognise gambling harm early."
-h1: "Responsible Gambling in New Zealand: Help, Limits and Self-Exclusion"
+h1: "Responsible Gambling in New Zealand [October 2026]: Help, Limits and Self-Exclusion"
 author: "Maia Williams, Editor, Bonuses & Regulation"
 words: 1202
 ---
 
-# Responsible Gambling in New Zealand: Help, Limits and Self-Exclusion
+# Responsible Gambling in New Zealand [October 2026]: Help, Limits and Self-Exclusion
 
 > ℹ️ **Get help now****Gambling Helpline New Zealand — free, confidential, 24 hours a day: [0800 654 655](tel:0800654655), or free text 8006.** You do not need to be in crisis to call, and you do not have to give your name. They also support family and whānau of someone who is gambling. In an emergency, call 111.
 

@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/casino-reviews/fortune-play/
-title: "Fortune Play Review NZ 2026 | Bonus, Payouts & Verdict"
+title: "Fortune Play Review NZ [October 2026]: Bonus & Payouts"
 meta_description: "Fortune Play review for New Zealand players 2026. Best for crash and instant-win games. Bonus terms, payout speed, games, licensing and our verdict — tested f"
-h1: "Fortune Play Review NZ 2026: Best for crash and instant-win games"
+h1: "Fortune Play Review NZ [October 2026]: Best for crash and instant-win games"
 author: "Rawiri Kingi, Lead Casino Reviewer"
 words: 1472
 ---
 
-# Fortune Play Review NZ 2026: Best for crash and instant-win games
+# Fortune Play Review NZ [October 2026]: Best for crash and instant-win games
 
 > ℹ️ **Our verdict**Fortune Play carries 8,000+ titles across 80 studios and has the deepest crash and instant-win range on this site — Aviator, bonus buys, Megaways and a full sportsbook on the same account. Payment coverage is unusually wide, spanning cards, e-wallets, bank transfer and six cryptocurrencies.
 

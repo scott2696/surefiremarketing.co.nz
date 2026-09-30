@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/casino-reviews/kingdom/
-title: "Kingdom Casino Review NZ 2026 | Bonus, Payouts & Verdict"
+title: "Kingdom Casino Review NZ [October 2026]: Bonus & Payouts"
 meta_description: "Kingdom Casino review for New Zealand players 2026. Fastest payouts, biggest 30x package. Bonus terms, payout speed, games, licensing and our verdict — tested"
-h1: "Kingdom Casino Review NZ 2026: Fastest payouts, biggest 30x package"
+h1: "Kingdom Casino Review NZ [October 2026]: Fastest payouts, biggest 30x package"
 author: "Rawiri Kingi, Lead Casino Reviewer"
 words: 1607
 ---
 
-# Kingdom Casino Review NZ 2026: Fastest payouts, biggest 30x package
+# Kingdom Casino Review NZ [October 2026]: Fastest payouts, biggest 30x package
 
 > ℹ️ **Our verdict**Kingdom won our payout-speed test outright, clearing crypto withdrawals in two to four hours with no operator fee — and it pairs that with one of the largest welcome packages on this site, 600% total up to NZ$18,500 on the casino side. The catch is the multiple: 30x, so the top of that range is far harder to reach than the headline suggests.
 

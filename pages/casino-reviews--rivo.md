@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/casino-reviews/rivo/
-title: "Rivo Casino Review NZ 2026 | Bonus, Payouts & Verdict"
+title: "Rivo Casino Review NZ [October 2026]: Bonus & Payouts"
 meta_description: "Rivo Casino review for New Zealand players 2026. Biggest bonus ladder, 10x wagering. Bonus terms, payout speed, games, licensing and our verdict — tested from"
-h1: "Rivo Casino Review NZ 2026: Biggest bonus ladder, 10x wagering"
+h1: "Rivo Casino Review NZ [October 2026]: Biggest bonus ladder, 10x wagering"
 author: "Rawiri Kingi, Lead Casino Reviewer"
 words: 1514
 ---
 
-# Rivo Casino Review NZ 2026: Biggest bonus ladder, 10x wagering
+# Rivo Casino Review NZ [October 2026]: Biggest bonus ladder, 10x wagering
 
 > ℹ️ **Our verdict**Rivo runs the highest match percentage on this site — 1000% total up to NZ$19,500 on the casino side — at an unusually low 10x wagering, with 25% VIP cashback on top. The sports offer is far smaller at 100% up to NZ$950. The offsetting factors are strict KYC that players report as demanding, and limited transparency about the operator behind the brand.
 

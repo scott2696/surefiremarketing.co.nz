@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/casino-reviews/madcasino/
-title: "MadCasino Review NZ 2026 | Bonus, Payouts & Verdict"
+title: "MadCasino Review NZ [October 2026]: Bonus & Payouts"
 meta_description: "MadCasino review for New Zealand players 2026. Big bonus, unverified licence. Bonus terms, payout speed, games, licensing and our verdict — tested from an NZ "
-h1: "MadCasino Review NZ 2026: Big bonus, unverified licence"
+h1: "MadCasino Review NZ [October 2026]: Big bonus, unverified licence"
 author: "The CasinoKiwi Team, Editorial Team"
 words: 1678
 ---
 
-# MadCasino Review NZ 2026: Big bonus, unverified licence
+# MadCasino Review NZ [October 2026]: Big bonus, unverified licence
 
 > ℹ️ **Our verdict**MadCasino runs the largest headline welcome package on this site — **777% total up to NZ$14,500** on the casino side and **250% total up to NZ$6,800** on sports, across casino, live dealer and a sportsbook on one account. The offer is now documented and the sign-up route works. What is still missing is the licence: MadCasino does not publish one we can verify, which is what holds its score to 3.8 rather than higher.
 

@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/casino-reviews/smash/
-title: "Smash Casino Review NZ 2026 | Bonus, Payouts & Verdict"
+title: "Smash Casino Review NZ [October 2026]: Bonus & Payouts"
 meta_description: "Smash Casino review for New Zealand players 2026. Lowest wagering requirement on this site. Bonus terms, payout speed, games, licensing and our verdict — test"
-h1: "Smash Casino Review NZ 2026: Lowest wagering requirement on this site"
+h1: "Smash Casino Review NZ [October 2026]: Lowest wagering requirement on this site"
 author: "Maia Williams, Editor, Bonuses & Regulation"
 words: 1545
 ---
 
-# Smash Casino Review NZ 2026: Lowest wagering requirement on this site
+# Smash Casino Review NZ [October 2026]: Lowest wagering requirement on this site
 
 > ℹ️ **Our verdict**Smash asks 10x on deposit plus bonus where the market asks 35x to 40x on bonus. That single number makes its 600% total up to NZ$19,500 casino package — plus 250% up to NZ$9,800 on sports — the most clearable big offer we found. The trade-off is transparency: an Anjouan licence, less publicly documented than Curaçao, and licensing details that are not easy to find on site.
 

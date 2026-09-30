@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/online-pokies/
-title: "Online Pokies NZ 2026 | Best Real Money Pokies Sites"
+title: "Online Pokies NZ [October 2026]: Best Real Money Pokies Sites"
 meta_description: "The best online pokies NZ sites for 2026. Real money pokies ranked by RTP, jackpot range and payout speed, with NZD banking and honest bonus terms for Kiwi players."
-h1: "Online Pokies NZ 2026: Best Real Money Pokies Sites for Kiwis"
+h1: "Online Pokies NZ [October 2026]: Best Real Money Pokies Sites for Kiwis"
 author: "Rawiri Kingi, Lead Casino Reviewer"
 words: 2847
 ---
 
-# Online Pokies NZ 2026: Best Real Money Pokies Sites for Kiwis
+# Online Pokies NZ [October 2026]: Best Real Money Pokies Sites for Kiwis
 
 ## Ranked operators
 

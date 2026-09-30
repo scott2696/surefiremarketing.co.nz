@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/casino-reviews/ivibet/
-title: "IviBet Review NZ 2026 | Bonus, Payouts & Verdict"
+title: "IviBet Review NZ [October 2026]: Bonus, Payouts & Verdict"
 meta_description: "IviBet review for New Zealand players 2026. Casino and sportsbook under one login. Bonus terms, payout speed, games, licensing and our verdict — tested from a"
-h1: "IviBet Review NZ 2026: Casino and sportsbook under one login"
+h1: "IviBet Review NZ [October 2026]: Casino and sportsbook under one login"
 author: "Rawiri Kingi, Lead Casino Reviewer"
 words: 1445
 ---
 
-# IviBet Review NZ 2026: Casino and sportsbook under one login
+# IviBet Review NZ [October 2026]: Casino and sportsbook under one login
 
 > ℹ️ **Our verdict**IviBet gives you a 5,000+ game casino and a full sportsbook on a single account, backed by a published Curaçao licence number. The welcome offer is modest by this list's standards, and the recurring theme in player feedback is withdrawal delays tied to repeated KYC requests — so verify early.
 

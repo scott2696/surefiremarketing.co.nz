@@ -1,13 +1,13 @@
 ---
 url: https://surefiremarketing.co.nz/payment-methods/
-title: "NZ Casino Payment Methods 2026 | Deposits & Withdrawals"
+title: "Casino Payment Methods NZ [October 2026]: NZD Deposits"
 meta_description: "Every casino payment method that works from a New Zealand bank account in 2026 — NZD transfers, debit cards, Online EFTPOS, crypto — and why POLi keeps getting declined."
-h1: "NZ Casino Payment Methods: Deposits & Withdrawals That Actually Work"
+h1: "NZ Casino Payment Methods [October 2026]: Deposits & Withdrawals That Actually Work"
 author: "Rawiri Kingi, Lead Casino Reviewer"
 words: 1947
 ---
 
-# NZ Casino Payment Methods: Deposits & Withdrawals That Actually Work
+# NZ Casino Payment Methods [October 2026]: Deposits & Withdrawals That Actually Work
 
 ## Each method, in detail
 
